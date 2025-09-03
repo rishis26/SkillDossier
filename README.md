@@ -8,10 +8,6 @@
   <br />
   
   **Empowering Career Growth Through Expert Mentorship**
-  
-  <br />
-  
-  ---
 </div>
 
 <br/>
